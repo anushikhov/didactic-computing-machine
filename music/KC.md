@@ -6,7 +6,7 @@ And it's not because I share Robert Fripp's birthday, it's because Bill Bruford 
 
 No, actually... "In the Court of the Crimson King".
 
-I first heard them when I was 17-18... so that is around 10 years ago. At the time I was also in love with crimson (the color) and Gregg Lake's voice.
+I first heard them when I was 17-18... so that is around 10 years ago. At the time I was also in love with crimson (the color) and Gregg Lake's voice. The latter is still true, while the former is ... blue... dark blue.  
 
 Okay, but seriously...
 
