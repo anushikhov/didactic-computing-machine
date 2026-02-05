@@ -14,9 +14,15 @@ Epitaph...
 
 In fact, at the time I stopped attending to my guitar classes because when I sent it to my coach, he said he was unimpressed.
 
-Being completely useless I dropped out of uni and started working at a supermarket to support my family. The superhuman experience was accompanied by the "sophistication" of the mainstream music to make the torture more profound. Once I told the guy about the music that was under my ears there for eight to ten hours, and we both ended up crying. Over the years my ears have grown accustomed to both the mainstream music and the mainstream people with their mainstream choices. But I also bought my very own classical guitar. But as I said... I ran away from my last music teacher.
+Being completely useless I dropped out of uni and started working at a supermarket to support my family. The superhuman experience was accompanied by the "sophistication" of the mainstream music to make the torture more profound. Once I told the guy about the music that was under my ears there for eight to ten hours, and we both ended up crying.   
 
-He only appreciated technique... well: https://youtu.be/IHjxgHDWtwY?si=SSq9mq3kC8w_sPcS
+Over the years my ears have grown accustomed to both the mainstream music and the mainstream people with their mainstream choices.   
+
+But I also bought my very own classical guitar.   
+
+But as I said... I ran away from my last music teacher.
+
+He only appreciated technique... well... https://youtu.be/IHjxgHDWtwY?si=SSq9mq3kC8w_sPcS
 
 I can't imagine how Bill did the Sheltering Skies... it seems truly superhuman...
 
