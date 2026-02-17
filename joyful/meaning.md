@@ -11,4 +11,8 @@
 **Everything happens for a reason.**  
 **Sometimes the reason is you're stupid and you make bad decisions.**  
 
+Every time I find the meaning of life they change it.   
+
+You are not useless. You can be used as a bad example.  
+
 

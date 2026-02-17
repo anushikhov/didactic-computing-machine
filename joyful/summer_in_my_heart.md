@@ -24,3 +24,9 @@ _Autumn seemed to arrive suddenly that year._
 _The morning of the first September was crisp and golden as an apple._    
   
 - J. K. Rowling    
+
+_It was November - the  month of crimson sunsets, parting birds, deep, sad hymns of the sea, passionate wind-songs in the pines._  
+
+- L. M. Montgomery  
+
+

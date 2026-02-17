@@ -22,4 +22,12 @@ and comforting message:
 
 - Roald Dahl  
 
+"The desire to be loved is the last illusion, give it up and you will be free."   
+
+- Margaret Atwood   
+
+"What you do makes a difference. We should never simply write ourselves off... and see ourselves as the victim of various forces. It's always our decision who we are."  
+
+"These days, there are angry ghosts all around us - dead from wars, sickness, starvation - and nobody cares. So you say you're under a curse? So what? So's the whole damn world."  
+
 
