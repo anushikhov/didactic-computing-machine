@@ -10,4 +10,8 @@
 
 "Live carefully, because there are people around you."  
 
+"In a mad world, only the mad are sane."  
+
+"It was not Hitler, Gőring, Goebbels, Himmler, or whatever the others were called, who had me dragged away and beaten. No, it was the cobbler, the neighbor, the old man, the milkman, the postman, those without form suddenly given armbands and a cap on their heads and then they were the master race."  
+
 

@@ -1,0 +1,3 @@
+https://iai.tv/articles/consciousness-researchers-need-spinoza-auid-3502?fbclid=IwY2xjawQFwatleHRuA2FlbQIxMQBzcnRjBmFwcF9pZBAyMjIwMzkxNzg4MjAwODkyAAEex-LdWFOD6l77gzchYKOqiMOYcM11GCAw0wVDLWmo9viUIJYLN8T6ArynEeE_aem__g1gVWur1Dr7VgSYbU6PSA  
+
+
