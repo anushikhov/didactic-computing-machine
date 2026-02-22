@@ -1,0 +1,3 @@
+"Entropy Bagels" and Other Complex Structures Emerge from Simple Rules   
+
+https://www.quantamagazine.org/entropy-bagels-and-other-complex-structures-emerge-from-simple-rules-20240227/?fbclid=IwY2xjawQIFQFleHRuA2FlbQIxMABicmlkETJPRlZDeXVDRm9pNkJQazBJc3J0YwZhcHBfaWQQMjIyMDM5MTc4ODIwMDg5MgABHjKezHeSG41iHqTbH_upqR8_r9FZqHSbiTa9q8o6itQCGjXPjdZ5cr4NATrx_aem_F_9WTiqKluUy2dGT2D5MPg
