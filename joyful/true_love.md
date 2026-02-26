@@ -10,4 +10,6 @@
 
 If something burns your soul with purpose and desire, it's your duty to be reduced to ashes by it. Any other form of existence will be yet another dull book in the library of life.   
 
+"Don't bend; don't water it down; don't try to make it logical; don't edit your own soul according to the fashion. Rather, follow your most intense obsessions mercilessly."  - Franz Kafka   
+
 

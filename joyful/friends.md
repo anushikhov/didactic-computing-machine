@@ -8,4 +8,8 @@
 
 "Paradise has never been about places. It exists in moments. In connection. In flashes across time."  
 
+"I'm not upset that you lied to me, I'm upset that from now on I can't believe you."  
+
+"Friendship was witnessing another's slow drip of miseries, and long bouts of boredom, and occasional triumphs. It was feeling honored by the privilege of getting to be present for another person's most dismal moments, and knowing that you could be dismal around him in return."  ~ Hanya Yangihara   
+
 

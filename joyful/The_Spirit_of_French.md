@@ -6,5 +6,7 @@ Freedom is the sure possession of those alone who have the courage to defend it.
 
 The only way to deal with an unfree world is to become so absolutely free that your very existence is an act of rebellion.  
 
+A slave is one who waits for someone to come and free him.  - Ezra Pound   
+
 
 

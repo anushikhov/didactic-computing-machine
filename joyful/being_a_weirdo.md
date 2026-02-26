@@ -30,4 +30,9 @@ and comforting message:
 
 "These days, there are angry ghosts all around us - dead from wars, sickness, starvation - and nobody cares. So you say you're under a curse? So what? So's the whole damn world."  
 
+\- You are a unit of power, Harry.  
+\- I'm a watt?   
+
+"Love yourself, for who and what you are; protect your dream and develop your talent to the fullest extent."  ~ Joan Benoit   
+
 

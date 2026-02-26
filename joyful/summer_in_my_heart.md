@@ -29,4 +29,8 @@ _It was November - the  month of crimson sunsets, parting birds, deep, sad hymns
 
 - L. M. Montgomery  
 
+_It was wonderful to get a seat by a window in the sunlight where the sun could fill my head with music._  
+
+- Charles Bukowski   
+
 

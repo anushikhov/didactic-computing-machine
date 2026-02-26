@@ -4,4 +4,5 @@
 
 "We are mosaics - pieces of light, love, history, stars - glued together with magic and music and words."  
 
+"Paradise has never been about places. It exists in moments. In connection. In flashes across time."  
 

@@ -5,4 +5,6 @@
 
 "What is life but an unpleasant interruption to a peaceful nonexistence."  
 
+"The mightiest power of death is not that it can make people die, but that it can make the people you left behind want to stop living." - Fredrick Backman  
+
 
