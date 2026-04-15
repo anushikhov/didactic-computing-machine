@@ -1,4 +1,4 @@
-### From Recursive Self-Improvement to Recursive Co-Improvement      
+## From Recursive Self-Improvement to Recursive Co-Improvement      
 _Questions are the clues to the unknown_      
    
 Anushik Hovhannisyan      
@@ -9,7 +9,7 @@ Our idea of progress is increasingly being tied to one loop: machine learning im
 The narrative is then treated as an inevitable path forward, even though it rests on the speculative assumption that the central loop must be machine self-improvement. But what if a better design is possible?     
      
 _What if that loop is only part of a broader recursive process running between machine learning and human learning?_      
-   
+     
 ![Loop Visualizations](https://raw.githubusercontent.com/anushikhov/didactic-computing-machine/master/essays/img/1_Loop_Visualizations.jpg)      
    
 When comparing artificial and human intelligence, the discussion often carries more certainty than our knowledge justifies. Considered separately, both reveal major unknowns and asymmetries that make the comparison premature. In machine learning, it remains unclear where current scaling trends lead. In human learning, the major unknown is the human brain, which is not yet fully understood.   
