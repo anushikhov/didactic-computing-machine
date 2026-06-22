@@ -12,4 +12,12 @@
 
 "Friendship was witnessing another's slow drip of miseries, and long bouts of boredom, and occasional triumphs. It was feeling honored by the privilege of getting to be present for another person's most dismal moments, and knowing that you could be dismal around him in return."  ~ Hanya Yangihara   
 
+"Sometimes you can't explain what you see in a person. It's just the way they take you to a place where no one else can."  
+
+"Typical. Selfish. You think like a human."  
+
+"If you're silent about your pain, they'll kill you and say you enjoyed it."  
+
+"Wasn't friendship its own miracle, the finding of another person who made the entire lonely world seem somehow less lonely?"  
+
 

@@ -6,3 +6,6 @@
 
 "Paradise has never been about places. It exists in moments. In connection. In flashes across time."  
 
+"The secret, dear Alice, is to surround yourself with people who make your heart smile. It's then, only then will you be in Wonderland."   
+
+

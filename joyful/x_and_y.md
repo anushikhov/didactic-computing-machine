@@ -6,4 +6,8 @@
 
 "It is true that I am endowed with an absurd sensitiveness; what scratches others tears me to pieces."  
 
+"You have no idea what I had to go through to get to where I am now... so I can look at you and feel nothing."  
+
+"Actually, really knowing someone doesn't mean anything. People change."  
+
 

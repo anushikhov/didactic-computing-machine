@@ -9,4 +9,6 @@ The only way to deal with an unfree world is to become so absolutely free that y
 A slave is one who waits for someone to come and free him.  - Ezra Pound   
 
 
+"To some extent, 'The Wall' is asking the question, 'Do you want a voice? And if you do, you better bloody well go out and get it because it's not going to be handed to you on a plate."  ~ Roger Waters   
+
 

@@ -36,3 +36,12 @@ and comforting message:
 "Love yourself, for who and what you are; protect your dream and develop your talent to the fullest extent."  ~ Joan Benoit   
 
 
+"Does anything in nature despair except man? An animal with a foot caught in a trap does not seem to despair. It is too busy trying to survive. It is all closed in, to a kind of still, intense waiting. Is this a key? Keep busy with survival. Imitate the trees. Learn to lose in order to recover, and remember that nothing stays the same for long, not even pain, psychic pain. Sit it out. Let it all pass. Let it go."   
+
+
+"Being alone has a power over me that never fails. When I am willfully alone, a slight ordering of my interior begins to take place and I need nothing more."  
+
+
+"I'll be home, and I'll bolt the door. I'll put some coffee on the stove, some records on the phonograph, and I'll bolt the door. I'll read my books and I'll drink coffee and I'll listen to music, and I'll bolt the door."   
+
+

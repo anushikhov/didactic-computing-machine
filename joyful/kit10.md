@@ -1,0 +1,3 @@
+"If you don't know, the thing to do is not to get scared, but to learn."   
+
+

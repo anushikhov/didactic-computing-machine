@@ -4,14 +4,21 @@
 
 "You have to let other people be right... it consoles them for not being anything else."   
 
-- So women should help one another, they do not wage war.  
-- Not even if a man asks you to?  
-- Especially if a man asks you to.  
+\- So women should help one another, they do not wage war.  
+\- Not even if a man asks you to?  
+\- Especially if a man asks you to.  
 
 "Live carefully, because there are people around you."  
 
 "In a mad world, only the mad are sane."  
 
 "It was not Hitler, Gőring, Goebbels, Himmler, or whatever the others were called, who had me dragged away and beaten. No, it was the cobbler, the neighbor, the old man, the milkman, the postman, those without form suddenly given armbands and a cap on their heads and then they were the master race."  
+
+\- You're in your 30's and you still watch cartoons?  
+\- You people will put an age limit on everything except being stupid.  
+
+"The less talent they have, the more pride, vanity, and arrogance they have. All these fools, however, find other fools who applaud them."   ~ Desiderius Erasmus    
+
+"I get that hurt people hurt people, however I know a lot of hurt people that don't hurt people. I know a lot of people that have childhood trauma that don't grow up to be corrupt, evil, abusive monsters. Truama may be a reason but it's not an excuse."   
 
 
